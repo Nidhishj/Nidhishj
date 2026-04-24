@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jainnidhish31@gmail.com**
 
-- ⚡ Fun fact **Facts are not fun!**
+- ⚡ Fun fact **I believe throwing a neural network at every problem is just an overkill**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
